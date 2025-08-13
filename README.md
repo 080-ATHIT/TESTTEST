@@ -3,5 +3,5 @@
 
 
 68130500100 Arigato .
-TTTTTT
+
 
